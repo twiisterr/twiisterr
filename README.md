@@ -1,18 +1,6 @@
 ── .✦             ⋮ ⌗ ┆
 
 
- [atabook](https://silverxptx.atabook.org/).
-[strawpage](https://silverxptsx.straw.page/).
-[pronouns page](https://en.pronouns.page/@silverxpt)
-[guns.lol](https://guns.lol/silverxpt).
-       
-          
-
-
-
-         
-
-<img width="1000" height="500" alt="image" src="https://github.com/user-attachments/assets/84003d44-ae99-4452-aa18-0bbe18a1fc4f" />
 
           
           
