@@ -12,7 +12,11 @@
 
 
 
+${\textsf{\color{#800080}look at my websites}}$
 
+${\textsf{\color{#ffbf00}usually offtab}}$
+
+${\textsf{\color{#ffc87c}c+h enc.}}$
 
 
 
