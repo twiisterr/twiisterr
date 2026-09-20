@@ -1,4 +1,3 @@
-<img  alt="image" src="https://github.com/user-attachments/assets/aafca40c-e0c2-4311-a15a-4aa7808b8591" />
 
 ${\textsf{\color{#000060 }scroll down .}}$
 
