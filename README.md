@@ -1,9 +1,8 @@
 ── .✦             ⋮ ⌗ ┆
+<img alt="image" src="https://github.com/user-attachments/assets/1ebe38fa-5e54-4f93-a19c-7935a19224cc" />
+<img  alt="image" src="https://github.com/user-attachments/assets/5699973f-74fa-4894-841c-f981588d607a" />
 
 
-
-
-<img  alt="image" src="https://github.com/user-attachments/assets/e39e6192-2629-4fe6-be1b-1d2c56942d95" />
 
 ${\textsf{\color{#800080}look at my websites}}$
 
