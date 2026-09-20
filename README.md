@@ -1,14 +1,15 @@
-── .✦             ⋮ ⌗ ┆
-<img alt="image" src="https://github.com/user-attachments/assets/1ebe38fa-5e54-4f93-a19c-7935a19224cc" />
+<img  alt="image" src="https://github.com/user-attachments/assets/aafca40c-e0c2-4311-a15a-4aa7808b8591" />
+
+${\textsf{\color{#000060 }scroll down .}}$
+
+${\textsf{\color{#1d2951 }if u want .}}$
+
+${\textsf{\color{#002e63 }to find websites .}}$
+
 <img  alt="image" src="https://github.com/user-attachments/assets/5699973f-74fa-4894-841c-f981588d607a" />
 
 
 
-${\textsf{\color{#800080}look at my websites}}$
-
-${\textsf{\color{#ffbf00}usually offtab}}$
-
-${\textsf{\color{#ffc87c}c+h enc.}}$
 
 
 
