@@ -15,8 +15,8 @@ ${\textsf{\color{#002e63 }to find websites .}}$
 ![](https://komarev.com/ghpvc/?username=your-github-silverxpt)
 
 
-<details><summary><b> 
-    </b> </summary>   
+<img  alt="image" src="https://github.com/user-attachments/assets/72d8cc79-13ab-425f-912b-0e5907fd59e0" />
+
 
 <!--
 **twiisterr/twiisterr** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
