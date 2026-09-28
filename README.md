@@ -1,13 +1,14 @@
-<img  alt="image" src="https://github.com/user-attachments/assets/72d8cc79-13ab-425f-912b-0e5907fd59e0" />
 
-${\textsf{\color{#1d2951 }if u want .}}$
+${\textsf{\color{#ff3b3b }look down .}}$
 
-${\textsf{\color{#002e63 }to find websites .}}$
+${\textsf{\color{#9d0000 }if u want .}}$
 
-[straw page ](https://kaaalims.straw.page)
+${\textsf{\color{#760000 }to find websites .}}$
+
+[strwpge. ](https://kaaalims.straw.page)
 
 [ 新book ](https://silverxptx.atabook.org/)
-<img  alt="image" src="https://github.com/user-attachments/assets/5699973f-74fa-4894-841c-f981588d607a" />
+<img  alt="image" src="https://github.com/user-attachments/assets/2cc410b9-94da-44c5-8821-34de8cec45c8" />
 
 
 
