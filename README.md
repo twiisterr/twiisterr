@@ -18,7 +18,6 @@ ${\textsf{\color{#760000 }to find websites .}}$
 ![](https://komarev.com/ghpvc/?username=your-github-silverxpt)
 
 
-<img  alt="image" src="https://github.com/user-attachments/assets/72d8cc79-13ab-425f-912b-0e5907fd59e0" />
 
 
 <!--
