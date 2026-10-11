@@ -32,7 +32,7 @@ ${\textsf{\color{#800020 }݁feel free}}$  ${\textsf{\color{#C41E3A }݁to int}}$ 
 
 
 
-![](https://komarev.com/ghpvc/?username=your-github-silverxpt)
+![](https://komarev.com/ghpvc/?username=your-github-silverxpt&color=D10000)
 
 
 <img  alt="image" src="https://github.com/user-attachments/assets/fd967e0e-58f8-48b1-97e8-31d6656877ea" />
