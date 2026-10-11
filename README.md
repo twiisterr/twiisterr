@@ -7,7 +7,7 @@ ${\textsf{\color{#760000 }to find websites .}}$
 
 ${\textsf{\color{#D70040 }𓏲﹕     ﹕⸝⸝}}$ [strwpge. ](https://kaaalims.straw.page)
 
-${\textsf{\color{#D2042D }݁ ˖Ი𐑼ֶָ֢ .}}$ [ 新book ](https://silverxptx.atabook.org/)
+           ${\textsf{\color{#D2042D }݁ ˖Ი𐑼ֶָ֢ .}}$ [ 新book ](https://silverxptx.atabook.org/)
 <img  alt="image" src="https://github.com/user-attachments/assets/2cc410b9-94da-44c5-8821-34de8cec45c8" />
 
 
