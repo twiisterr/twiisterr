@@ -1,3 +1,5 @@
+<img alt="image" src="https://github.com/user-attachments/assets/823dbbe9-5a9e-4e4f-aace-a313b51cf807" />
+
 
 ${\textsf{\color{#ff3b3b }look down .}}$
 
@@ -18,6 +20,7 @@ ${\textsf{\color{#D70040 }𓏲﹕     ﹕⸝⸝}}$ [strwpge. ](https://kaaalims.
 ![](https://komarev.com/ghpvc/?username=your-github-silverxpt)
 
 
+<img  alt="image" src="https://github.com/user-attachments/assets/fd967e0e-58f8-48b1-97e8-31d6656877ea" />
 
 
 <!--
