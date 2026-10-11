@@ -5,7 +5,7 @@ ${\textsf{\color{#9d0000 }if u want .}}$
 
 ${\textsf{\color{#760000 }to find websites .}}$
 
-[strwpge. ](https://kaaalims.straw.page)
+${\textsf{\color{#760000 }𓏲﹕     ﹕⸝⸝}}$ [strwpge. ](https://kaaalims.straw.page)
 
 [ 新book ](https://silverxptx.atabook.org/)
 <img  alt="image" src="https://github.com/user-attachments/assets/2cc410b9-94da-44c5-8821-34de8cec45c8" />
